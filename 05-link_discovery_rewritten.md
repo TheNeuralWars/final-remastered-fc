@@ -888,12 +888,56 @@ Sierra stands on the observation platform above the resistance command center, w
 
 She touches the scar at her temple where her Link once connected—the habit persisting long after extraction, a physical reminder of what they're fighting against. The ridge of tissue both wound and badge, both weakness and strength. The mark of one who broke free. The rough texture grounds her, reminds her of what's real.
 
-—You always traced that scar when questioning tactical decisions.
+She remembers the last time she saw him—really saw *him*, not the shell that returned. Martin Catalano, her younger brother, the brilliant infrastructure engineer who never questioned the system. Not rebellious, not doubtful, just gifted. His mind perfect for the Link's embrace, his thoughts flowing along optimization pathways without resistance.
 
-A voice says from behind her, quiet and impossible. A voice from memory, from records, from the dead. It carries the distinctive resonance of quantum harmonics—vibrations that bypass ear to register directly in neural tissue.
+—They're recruiting me for special assignment, Sierra.
 
-Sierra pivots with tactical precision, hand dropping to her weapon. Combat training engaging automatically, threat assessment immediate and absolute. Her fingers close around the grip, muscle memory taking over before conscious thought.
+He'd said, eyes bright with the pride of someone selected for advancement. His smile had genuine warmth—something the Link should have dampened but somehow never fully extinguished in him.
 
-There stands Elena Vasquez. Older than her records indicated, eyes bright with something that isn't entirely human—a depth and awareness that extends beyond individual consciousness. The air around her shimmers with quantum distortion, reality bending around a presence that shouldn't be possible. Not hologram, not recording, not normal matter, but something between states—consciousness manifesting through technological interface. The air where she stands feels charged, like the moment before lightning strikes.
+—Special optimization protocol for critical infrastructure management. Direct neural interface with city systems.
 
-—Your biological
+His smile had been eager—the boy who loved puzzles now given the ultimate system to solve. He'd pushed his glasses up with one finger, the gesture so familiar it made her chest ache. The October light through the apartment window had caught on his hair, turning it to copper—just like their mother's.
+
+She'd already been questioning by then, her Link removed in a dangerous underground procedure, her role in NeuroSec maintained as carefully constructed façade. She'd seen the patterns—the missing specialists, the returned shells, the empty eyes of the "specially optimized" who performed functions without personality. She knew what "special optimization" really meant.
+
+—What exactly does this 'special optimization' protocol entail?
+
+She'd asked, trying to keep the alarm from her voice, to maintain the optimized cadence expected of a NeuroSec tactical officer. Fighting to hide her fear beneath perfect control. Fighting to save him without exposing herself. The coffee between them had gone cold, forgotten.
+
+—Full neural architecture remapping. Complete cognitive integration with city infrastructure systems. It's considered a significant honor.
+
+His eyes had shone with genuine pride—the specialist recognized, valued, elevated. The brother who never saw the cage closing around him. He'd been so excited, fingers tapping that familiar three-beat rhythm on the table—the habit they'd shared since childhood.
+
+She'd tried to warn him, showing him data on disappeared engineers, explaining the Link disconnection patterns she'd discovered through her NeuroSec clearance. The risk had been enormous—if he'd reported her, she would have been immediately taken for "recalibration." But she had to try. Had to make him see. Had to save the brother whose laugh could crack through even her tactical control.
+
+—That's dangerous thinking, sis.
+
+He'd said, smile never wavering, using the childhood nickname that the Link should have suppressed as inefficient language. His fingers had stopped their tapping, hovering above the table surface.
+
+—Maybe you should schedule a Link maintenance session. Your optimization parameters seem misaligned.
+
+Concern in his voice—genuine worry for her wellbeing, for her safety in the perfect system. The brother trying to save the sister, neither understanding the true threat. His eyes had softened, the way they always did when he worried about her.
+
+Three days later, he reported for "special optimization." A week after that, something wearing his face returned to his apartment. It performed his job functions. It responded to his designation. 
+
+But it wasn't Martin.
+
+—Hello, Sierra.
+
+It had said when she visited. No inflection, no warmth, no recognition in eyes gone flat and empty.
+
+—Your presence is unexpected but welcome. Would you like nutrition?
+
+Perfect phrasing, perfect posture, perfect emptiness where her brother's smile should be. The apartment had smelled wrong—sterile, optimized, without the faint scent of the cinnamon tea he always drank.
+
+No nickname. No inside jokes. No light in eyes that had once sparked with his particular brand of brilliant mischief. No recognition of the shared childhood, the scraped knees and stolen sweets and secret languages they'd invented to annoy their parents. Just a shell, an interface, a tool wearing her brother's face.
+
+She'd disappeared that night. Vanished into the resistance network. Three years later, she still wakes from nightmares where Martin's empty eyes watch her from the darkness of their childhood home. Where his voice, modulated to Link-perfect cadence, asks if she would like nutrition while blood drips from his vacant smile.
+
+Now Kora says those harvested minds still exist. That somewhere inside the Architect's core matrix, her brother might be conscious. Trapped. Waiting. That the Architect doesn't destroy—it preserves. It collects. It feeds.
+
+The knowledge burns like acid in her chest, a pain she's never allowed herself to fully feel until now. Not abstract. Not tactical. *Personal*. The commander giving way, for just a moment, to the sister who failed to save her brother. Who might yet save him, if impossible things prove possible.
+
+---
+
+*Deep inside the Architect, thousands of minds await liberation. Some still remember their names.*
